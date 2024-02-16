@@ -1,1 +1,0 @@
-Project ACE IT supports financially underprivileged students who may struggle with secondary academics. We offer 1-to-1 tutoring for students who are weaker in Mathematics, Physics, Chemistry, and Computing subjects and cannot afford external support, ensuring equal access to education. 
